@@ -1,0 +1,1 @@
+gms temaplate 1324
